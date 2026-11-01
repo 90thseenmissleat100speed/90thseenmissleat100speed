@@ -2,6 +2,13 @@
 
 
 
+<img width="1280" height="294" alt="image" src="https://github.com/user-attachments/assets/8984187d-334c-4dd5-b43c-a003c7a782eb" />
 
+
+<img align="right" img width="620" height="738" alt="image-3196-gradientmap pro" src="https://github.com/user-attachments/assets/b6e19dfe-b2fd-472f-9002-3c6c60b5ea30" /> 
+
+<img align="left" img width="199" height="205" alt="image-8973-gradientmap pro" src="https://github.com/user-attachments/assets/eee6a35f-83a7-42f2-9d8f-13338d511265" />
+hi hru.. yeah thats gud....i'm also gud
+<img width="1280" height="294" alt="image-fe0e-gradientmap pro" src="https://github.com/user-attachments/assets/9e5fec44-3a1d-4c3a-bb82-21738a73f1ad" />
 
 
