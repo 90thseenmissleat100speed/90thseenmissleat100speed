@@ -12,3 +12,4 @@ hi hru.. yeah thats gud....i'm also gud
 <img width="1280" height="294" alt="image-fe0e-gradientmap pro" src="https://github.com/user-attachments/assets/9e5fec44-3a1d-4c3a-bb82-21738a73f1ad" />
 
 
+all art by me
