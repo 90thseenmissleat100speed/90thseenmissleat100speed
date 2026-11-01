@@ -15,3 +15,5 @@ hi hru.. yeah thats gud....i'm also gud
 all art by me made in jspaint 
 <img width="320" height="180" alt="BsvF0X" src="https://github.com/user-attachments/assets/be124818-14ff-46fc-b75b-4ec1090ae084" />
 
+<img width="633" height="430" alt="Screenshot 2026-10-26 113543" src="https://github.com/user-attachments/assets/d430cf34-be43-44bc-9349-754f13febb99" />
+WHY CAN I DO THIS TO MY WORK I CANT
