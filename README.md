@@ -17,4 +17,4 @@ all art by me made in jspaint
 
 <img width="320" height="180" alt="e2915233b07e2379cdaa219db0e77a07" src="https://github.com/user-attachments/assets/b75abc9b-b35a-4369-8f87-73cb71dd1e20" /> 
 
-yayyy love my friends🥳🥳🥳🥳🥳🥳🥳
+
