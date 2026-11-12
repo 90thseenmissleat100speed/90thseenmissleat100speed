@@ -21,6 +21,6 @@ all art by me made in jspaint
 
 
 https://github.com/user-attachments/assets/627072c6-999b-4c7a-ad0b-d914a892d049
-
+this makes me laugh omg i'm so fucking sorry
 
 
