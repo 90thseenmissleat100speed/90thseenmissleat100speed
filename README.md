@@ -15,6 +15,12 @@ hi hru.. yeah thats gud....i'm also gud
 all art by me made in jspaint 
 <img width="320" height="180" alt="BsvF0X" src="https://github.com/user-attachments/assets/be124818-14ff-46fc-b75b-4ec1090ae084" />
 
-<img width="320" height="180" alt="e2915233b07e2379cdaa219db0e77a07" src="https://github.com/user-attachments/assets/b75abc9b-b35a-4369-8f87-73cb71dd1e20" /> 
+
+
+
+
+
+https://github.com/user-attachments/assets/627072c6-999b-4c7a-ad0b-d914a892d049
+
 
 
