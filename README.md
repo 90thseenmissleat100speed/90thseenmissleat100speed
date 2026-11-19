@@ -20,11 +20,15 @@ all art by me made in jspaint
 
 
 
-https://github.com/user-attachments/assets/627072c6-999b-4c7a-ad0b-d914a892d049
+
+
+https://github.com/user-attachments/assets/0a0b5f4f-d925-4a4c-b020-22de39524bf8
 
 
 
 
-this makes me laugh omg i'm so fucking sorry
+
+
+
 
 
