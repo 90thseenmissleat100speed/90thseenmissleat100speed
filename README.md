@@ -13,7 +13,9 @@ hi hru.. yeah thats gud....i'm also gud
 
 
 all art by me made in jspaint 
-<img width="320" height="180" alt="BsvF0X" src="https://github.com/user-attachments/assets/be124818-14ff-46fc-b75b-4ec1090ae084" />
+
+
+https://github.com/user-attachments/assets/361939b8-f2f2-4221-b421-dc3c574a727c
 
 
 
@@ -22,7 +24,9 @@ all art by me made in jspaint
 
 
 
-https://github.com/user-attachments/assets/0a0b5f4f-d925-4a4c-b020-22de39524bf8
+
+
+
 
 
 
